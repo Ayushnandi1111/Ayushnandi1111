@@ -2,7 +2,7 @@
 - 👀 I’m interested in COMPUTER ENGINEERING 
 - 🌱 I’m currently learning BASICS 
 - 💞️ I’m looking to collaborate on ... INSTAGRAM 
-- 📫 How to reach me GMAIL- iitwalabanda@gmail.com and INSTAGRAM https://www.instagram.com/kingakash1121/#
+- 📫 How to reach me GMAIL- iitwalabanda@gmail.com and INSTAGRAM https://www.instagram.com/raw.vibing.aura/#
 - 😄 Pronouns: ... HE,PW 
 - ⚡ Fun fact: ... PREPARING FOR JEE ADVANCED 
 
