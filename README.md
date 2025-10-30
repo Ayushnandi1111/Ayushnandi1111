@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kingakaSH1121
+- 👋 Hi, I’m @Ayush Nandi
 - 👀 I’m interested in COMPUTER ENGINEERING 
 - 🌱 I’m currently learning BASICS 
 - 💞️ I’m looking to collaborate on ... INSTAGRAM 
